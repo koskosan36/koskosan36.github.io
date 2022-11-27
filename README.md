@@ -1,0 +1,1 @@
+# koskosan36.github.io
